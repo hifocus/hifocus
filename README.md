@@ -1,1 +1,1 @@
-![](https://i0.wp.com/storage.huangxin.org/2022/10/31/1420402599.jpg)
+![DSC00069](https://edge.huangxin.org/images/2024/04/2206072103.jpg)
